@@ -1,2 +1,2 @@
-# debasishhazarika.github.io
+# debasish.github.io
 debasishhazarika
